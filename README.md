@@ -1,6 +1,6 @@
 -I’m OperaComposer
 
--I’m interested in writing, philosophy, music and...talk to me to know more
+-I’m interested in writing, philosophy, music, space and...talk to me to know more
 
 -System- meet us and treat us respectfully
 
